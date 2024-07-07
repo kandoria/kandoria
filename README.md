@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **kandoriaritik500@gmail.com**
 
-- 📄 Know about my experiences [I am working as software engineer at Comcast for last 2 years](I am working as software engineer at Comcast for last 2 years)
+- 📄 Know about my experiences [I am working as software engineer at Comcast for last 3 years](I am working as software engineer at Comcast for last 3 years)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
